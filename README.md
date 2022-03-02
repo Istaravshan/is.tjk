@@ -1,0 +1,2 @@
+# is.tjk
+Istaravshan
